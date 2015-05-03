@@ -1,1 +1,1 @@
-mighty is our God!
+Ohh ohhh ohh hoooooo!
